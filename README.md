@@ -15,7 +15,7 @@
 
 ## 📸 Software Overview & Interface
 <div align="center">
-<img src="https://www.image-line.com/fl-studio-learning/fl-studio-online-manual/html/img_shot/main_interface.png" width="650px" alt="FL Studio 2026 Full Build 25.2.5 Screenshot">
+<img src="https://dawzone.com/wp-content/uploads/2025/05/FL-Studio-2025-FL-Studio-25-New-Features.jpg" width="650px" alt="FL Studio 2026 Full Build 25.2.5 Screenshot">
 <p><i>Experience <b>FL Studio 2026 v25.2.5 All Plugins Bundle</b> with AI tools and new synthesis engines.</i></p>
 </div>
 
